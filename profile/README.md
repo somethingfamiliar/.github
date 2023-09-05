@@ -8,5 +8,5 @@ We're an award-winning creative agency with a conscience – making brands matte
 
 ### Get in touch
 - ✉️  [be@somethingfamiliar.co.uk](be@somethingfamiliar.co.uk)
-- 📷 [@discoliam](https://www.instagram.com/familiarsomething/)
-- 📄 [liamrichardson](https://www.linkedin.com/company/somethingfamiliar/)
+- 📷 [Instagram](https://www.instagram.com/familiarsomething/)
+- 📄 [LinkedIn](https://www.linkedin.com/company/somethingfamiliar/)
